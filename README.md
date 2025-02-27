@@ -1,4 +1,6 @@
 <!comentarios--->
+![](https://media.tenor.com/3o9ut1y38JkAAAAM/fire-car.gif)
+![]()
 # Sobre mim **sousa**
 ## *sousa041*
 - **olá, eu sou @sousa041**
@@ -11,7 +13,7 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-
+https://media.giphy.com/media/jsNVHN9L06bJZp953R/giphy.gif
 <!---
 sousa041/sousa041 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
