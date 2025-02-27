@@ -1,6 +1,5 @@
 <!comentarios--->
-![](https://media.tenor.com/3o9ut1y38JkAAAAM/fire-car.gif)
-![]()
+![](https://usagif.com/wp-content/uploads/gifs/race-car-78.gif)
 # Sobre mim **sousa**
 ## *sousa041*
 - **olá, eu sou @sousa041**
