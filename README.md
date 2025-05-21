@@ -1,5 +1,6 @@
-<!comentarios--->
-https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ2l2dnQ1MG96NHUxdWF0dmY4bWE5Y2hmcTV4dDR6bDVjaXpibnJ3YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/igNx7sm9Ygj0k/giphy.gif
+![b![nagi-free-fire-nagi](https://github.com/user-attachments/assets/35306f23-b6e1-42eb-a622-74ffa8905964)
+jo-gatinhawink](https://github.com/user-attachments/assets/babfa281-6dc1-4de9-8900-e90c46f86fb7)
+
 # Sobre mim **sousa**
 ## *sousa041*
 - **olá, eu sou @sousa041**
