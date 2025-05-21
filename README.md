@@ -1,5 +1,5 @@
 <!comentarios--->
-https://giphy.com/gifs/bitcoin-siteredditcom-igNx7sm9Ygj0k
+https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ2l2dnQ1MG96NHUxdWF0dmY4bWE5Y2hmcTV4dDR6bDVjaXpibnJ3YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/igNx7sm9Ygj0k/giphy.gif
 # Sobre mim **sousa**
 ## *sousa041*
 - **olá, eu sou @sousa041**
