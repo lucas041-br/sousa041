@@ -1,5 +1,5 @@
 <!comentarios--->
-![](https://usagif.com/wp-content/uploads/gifs/race-car-78.gif)
+https://giphy.com/gifs/bitcoin-siteredditcom-igNx7sm9Ygj0k
 # Sobre mim **sousa**
 ## *sousa041*
 - **olá, eu sou @sousa041**
